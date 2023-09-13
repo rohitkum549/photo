@@ -1,2 +1,3 @@
 
-![New-passport (2) (2)](https://github.com/rohitkum549/photo/assets/57566698/07f94cf8-094c-40ab-b552-bcb0bfe6381f)
+
+![profile-pic](https://github.com/rohitkum549/photo/assets/57566698/f7a07554-9599-404a-b214-6783b927754c)
